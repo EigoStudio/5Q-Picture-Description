@@ -1,2 +1,2 @@
 # 5Q-Picture-Description
-Here are some activities for learners who will be taking Eiken Grade 5 in the near future. These activities will help them feel comfortable transitioning over to Grade 5 grammar.
+Here are some intuitive activities for learners transitioning from phonics to Eiken Grade 5. These tasks help them get comfortable with basic grammar naturally before they start full exam prep.
